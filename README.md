@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OL1Y1ER
-- 👀 I’m interested in improving skills
+- 👀 I’m interested in improving my skills
 - 🌱 I’m currently learning c++,c# and much more 
 - 💞️ I’m looking to collaborate on anything, I want to learn new things gather experiance
 - 📫 How to reach me, yes!🐈‍⬛
